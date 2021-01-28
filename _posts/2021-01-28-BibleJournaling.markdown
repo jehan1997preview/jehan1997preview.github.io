@@ -10,6 +10,7 @@ categories: Bible
 Perhaps you feel a connection to God through your readings of the Bible or in the prayer that follows. Another beautiful way to connect and explore the questions and understandings that arise in your journey of faith is in journaling. There are times when your Bible study may be good and others when you are left with puzzling questions and perplexed wonder. Keeping a journal of the easy, the difficult, the good and the bad times of your biblical understanding deepens your relationship to the word of God in the bible. Journaling is one way of developing a deeper trust in God’s abiding presence. Your faith is sure to be stronger through your ability to communicate what is on your mind. Journaling can both deepen and renew your faith and understanding of the Bible’s teachings.
 
  Prompts for self reflection
+ <img src="https://images.unsplash.com/photo-1479334053136-4dcabc560c9a?ixid=MXwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHw%3D&ixlib=rb-1.2.1&auto=format&fit=crop&w=1050&q=80" alt="pic">
  Img: https://unsplash.com/photos/0GBxtiFvzXE
 Kids:
 What is your favourite day of the week and why?
